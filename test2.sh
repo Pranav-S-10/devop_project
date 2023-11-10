@@ -6,7 +6,3 @@ messi is the oat of football
 
 4+4=7 is wrong statement
 
-
-
-
-today is a good day.
